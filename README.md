@@ -181,7 +181,7 @@ With the amount of user market share that Facebook owns in Myanmar, people can u
 ---
 #### Created by
 
-__Dana K Lain__, Profile: [LinkedIn](www.linkedin.com/in/dana-kyine-lain), [Facebook](https://www.facebook.com/dana.k.lian)
+__Dana K Lain__, Profile: [LinkedIn](https://www.linkedin.com/in/dana-kyine-lain/), [Facebook](https://www.facebook.com/dana.k.lian)
 
 
 
