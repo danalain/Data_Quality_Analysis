@@ -179,9 +179,9 @@ __2. Implications on Racism__
 With the amount of user market share that Facebook owns in Myanmar, people can use it with bad intentions. As Rohingya Muslims are being targeted more and more by many racist extremists and politically motivated individuals, international scrutinity on Myanmar has also increased. As many people are still using different techniques to use racially insensitive languages, Facebook has the responsibility to provide better search quality results with more scrutiny on the usage of racist terminologies to create a safer place for its Burmese users. 
 
 ---
-#### Created by
+### Created by
 
-__Dana K Lain__, Profile: [LinkedIn](https://www.linkedin.com/in/dana-kyine-lain/), [Facebook](https://www.facebook.com/dana.k.lian)
+__Dana K Lain__, Profile: [LinkedIn](https://www.linkedin.com/in/dana-kyine-lain/)
 
 
 
